@@ -7,6 +7,5 @@
 - 🌌 Some details: My Pronouns are She/Her🚺, I'm Lesbian 👭, my sign its Sagittarius ♐, I was born in December 19, 2008	👻, My favorite food are Pasta🍝, French Fries🍟 and Barbecue🍖 I was born and live in Brazil 🌎
 - 👑 My dreams are be a Writer📝, I wanna write and Draw a manga, a brazillian manga. Write a book version of the manga story to people who don't like read Comics. And a Book detailing the sapphic romance story of Two girls being in the manga. Other drem its have a Gamer PC💻  to play all games a have wanted all this years like FNAF and Minecraft, have a Console🎮 to play other games i want like Mortal Kombat and The Last Of Us. And the Last Dream its have a collection of all mangas i want to read📚 like Demon Slayer, Attack On Titan ,  Jujutsu Kaisen and finish my collection of Naruto and Dragon Ball mangas.
 - ⚡I love said if "I love" something that i never know about it..... like "Gokurakugai"
-- 💌 I just really love my girlfriend. (Love you Amanda!! 😍💞💗).
-- 
+- The Boook i'm writing is "At the touch of your fingers". 
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=MaryJanne18&show_icons=true&theme=radical)
